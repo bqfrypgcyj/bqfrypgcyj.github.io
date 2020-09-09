@@ -1,1 +1,0 @@
-# bqfrypgcyj.github.io
